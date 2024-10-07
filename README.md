@@ -1,4 +1,4 @@
-# Deacon Multiply Link: https://athenahartigan.github.io/deacon-multiply/
+# Deacon Multiply Link: https://athenahartigan.github.io/deacon-multiply
 
 Click to support the Demon Deacons
 
